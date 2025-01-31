@@ -8,5 +8,5 @@ Im ImActuallyACookie!
 - 💬 Ask me about my life
 - 📫 How to reach me: please dont
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: My main account is [imactuallyapotato](github.com/imactuallyapotato)
+- ⚡ Fun fact: My main account is imactuallyapotato
 - this is my alt account because i forgot my email for my main account
